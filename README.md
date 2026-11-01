@@ -11,4 +11,11 @@ https://gdxxdcaz.934676.xyz
 https://sdashavcaz.934676.xyz
 
 
+遇到问题联系官网右下角蓝色图标在线客服解决，或者发工单。 请知悉无退款服务。 翻墙后访问的永久网址：
+
+https://azyun.top
+
+AZ云官网地址防失联发布页： https://github.com/feiniaoyun/azyun
+
+
 
